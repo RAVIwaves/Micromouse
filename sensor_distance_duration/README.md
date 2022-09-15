@@ -1,2 +1,2 @@
 # Tinkercad
-https://www.tinkercad.com/things/dOMS9JdPkkQ?
+https://www.tinkercad.com/things/dOMS9JdPkkQ
